@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programing Language
 - 🌱 I’m currently pursing Btech final year in CSE(AIML)
 - 💞️ I’m looking for internships to gain industrial experience
-- 📫 How to reach me... Gmail:tharuntharala55@gmail.com , contact:8520032566 , Linkdin: Tharun Tharala 
+- 📫 How to reach me... Gmail:tharuntharala55@gmail.com , Linkdin: Tharun Tharala , Instagram: @tharuntharala
   
 
 <!---
